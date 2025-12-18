@@ -1,1 +1,1 @@
-https://github.com/cactusvpakete/ono-tebe-nado
+https://github.com/cactusvpakete/ono-tebe-nado-ad
